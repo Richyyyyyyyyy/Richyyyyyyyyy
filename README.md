@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Richyyyyyyyyy
-- 😄 A chinese student of SCNU(华南师范大学), major in chemistry
+- 😄 A chinese student from SCNU(华南师范大学), major in chemistry
 - 📫 How to reach me richy06@foxmail.com
 - ⚡ Fun fact: Null
 <!---
